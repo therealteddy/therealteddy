@@ -14,6 +14,5 @@
        /                          
       '   @Github: https://github.com/cyber-ted/
           @Gmail: tedjoshissac@gmail.com 
-</pre>
 
-<center> <h5> PRAISE BE TO JESUS CHRIST! </h5> </center>
+            <center> <h5> PRAISE BE TO JESUS CHRIST! </h5> </center> </pre>
