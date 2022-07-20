@@ -7,4 +7,4 @@
 - It would be my dream to colaborate with people like dt 
 - Don't forget to check my projects out, if you're interested, ofcourse!
 
-<center> <h1> PRAISE BE TO JESUS CHRIST! </h1> </center>
+<center> <h2> PRAISE BE TO JESUS CHRIST! </h1> </center>
