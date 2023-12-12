@@ -6,4 +6,3 @@
 - I watch anime and listen to a ton of hip-hop 
 - I also play basketball. 
 - When I finish learning programming, I look forward to porting DOOM to my electronic thermometer XD
-- PS: I might be a nerd! 
